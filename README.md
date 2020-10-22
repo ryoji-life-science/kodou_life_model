@@ -1,0 +1,1 @@
+# kodou_life_model
